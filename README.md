@@ -1,4 +1,4 @@
-## Zog-Sports-Men-s-Flag-Football-Rules
+## Zog-Sports-Mens-Flag-Football-Rules
 
 The game of flag football shall be played between 2 teams of 6 players each. 5 players are required to start the game and avoid a forfeit. This is full blocking flag football where everyone is eligible. A regulation sized professional or college football will be used and must be provided by each team. The game length will consist of (2) 20-minute halves with a continuous clock, except for the last 2 minutes of the second half.
 Team Rosters
